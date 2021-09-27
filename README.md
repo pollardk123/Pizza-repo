@@ -1,7 +1,4 @@
 # Pizza-repo
-Im from Brooklyn
+Im from Brooklyn (Me too!)
 I like blue 
 Im left handed 
-sdjfjvkdrw20
-
-left handed people rule yee
